@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **divyanshpanwar895@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/recent](https://drive.google.com/drive/u/0/recent)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1e_gMfZxFyQy8kpbVvpnzUA1QC1WVg_3X/view?usp=sharing](https://drive.google.com/file/d/1e_gMfZxFyQy8kpbVvpnzUA1QC1WVg_3X/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
