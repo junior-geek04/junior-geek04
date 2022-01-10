@@ -1,9 +1,6 @@
 <h1 align="center">Hi 👋, I'm Divyansh Panwar</h1>
 <h3 align="center">A learning Django developer and an enthusiastic DSA learner.</h3>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=junior-geek04&label=Profile%20views&color=0e75b6&style=flat" alt="junior-geek04" /> </p>
-
-
 
 - 🔭 I’m currently working on **Improving my dev skills.**
 
