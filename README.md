@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **divyanshpanwar895@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1e_gMfZxFyQy8kpbVvpnzUA1QC1WVg_3X/view?usp=sharing](https://drive.google.com/file/d/1e_gMfZxFyQy8kpbVvpnzUA1QC1WVg_3X/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1VGluUf6Tuv28jcQUCPm1L7ziCT-taCVq/view?usp=sharing](https://drive.google.com/file/d/1VGluUf6Tuv28jcQUCPm1L7ziCT-taCVq/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
